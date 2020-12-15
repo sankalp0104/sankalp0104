@@ -5,7 +5,7 @@ Here are some ideas to get you started:
 
 I’m currently working on improving on my competitve programming skills.   
 I am thrilled to learn new methods rather quicker methods of solving a problem.   
-Fun fact: I can solve a Rubik's cude (nowadays very commmon).   
+Fun fact: I can solve a Rubik's cube (nowadays very commmon).   
 I am very much interested in knowing different people and their accents.   
 Big Fan of Sherlock Holmes and Harry Potter.   
 Love watching movies.   
